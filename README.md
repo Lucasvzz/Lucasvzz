@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ShabuShazam
-- 👀 I’m interested in Minas
+- 👋 Hi, I’m @Lucasvz
+- 👀 I’m interested in Ur Mom
 - 🌱 I’m currently learning Python con @k3v53
 - 💞️ I’m looking to collaborate on Nadie
 - 📫 How to reach me En Latam
